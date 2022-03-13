@@ -1,0 +1,2 @@
+# Global_Network_Membership_Charter.md
+Global_Network
